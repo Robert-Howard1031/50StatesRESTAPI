@@ -1,1 +1,1 @@
-https://fantastic-chief-beat.glitch.me/states/mo/funfact
+https://fantastic-chief-beat.glitch.me
